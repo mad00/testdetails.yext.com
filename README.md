@@ -1,1 +1,0 @@
-# testdetails.yext.com
